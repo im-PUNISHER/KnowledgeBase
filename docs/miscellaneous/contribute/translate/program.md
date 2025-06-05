@@ -1,7 +1,8 @@
----
+Documents Of Translaye By mr Eh$aN---
 title: AdGuard translation program
 sidebar_position: 1
----
+Subject this Questions Is A testing For Me.i Love it & OffCours me At This Challenge So Victory With Verry Repeat..   Every Ending is Always beautifull For All Good Humans
+tnQ m
 
 You can ask us any questions about translating AdGuard by sending an email to [translate@adguard.com](mailto:translate@adguard.com) or by joining our [Telegram chat](https://t.me/joinchat/UVYTLcHbr8JmOGIy).
 
